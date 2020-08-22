@@ -1,6 +1,6 @@
 This is AllSeeingI, a [Handshake](https://handshake.org) blockchain Top Level Domain.
 
-We promote the guideance of the Inner I Of All or the [Innerinetfoundation](http://official.innerinetfoundation/), known by some as the [AllSeeingI](http://innerifounder.allseeingi/).
+We promote the guideance of the Inner I Of All or the [Innerinetfoundation](http://official.innerinetfoundation/), known by some as the [AllSeeingI](http://innerinetfounder.allseeingi/).
 
 ![ALLEye](https://user-images.githubusercontent.com/37987346/90961195-20c04700-e475-11ea-8dff-8e7e64b55f95.jpg)
 
