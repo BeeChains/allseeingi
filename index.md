@@ -1,37 +1,7 @@
-## Welcome to GitHub Pages
+This is AllSeeingI, a [Handshake](https://handshake.org) blockchain Top Level Domain.
 
-You can use the [editor on GitHub](https://github.com/BeeChains/allseeingi/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
+We promote the guideance of the Inner I Of All or the [Innerinetfoundation](http://official.innerinetfoundation/), known by some as the [AllSeeingI](http://innerifounder.allseeingi/).
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+![ALLEye](https://user-images.githubusercontent.com/37987346/90961195-20c04700-e475-11ea-8dff-8e7e64b55f95.jpg)
 
-### Markdown
-
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
-
-```markdown
-Syntax highlighted code block
-
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/BeeChains/allseeingi/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://github.com/contact) and we’ll help you sort it out.
+![FourSquare](https://user-images.githubusercontent.com/37987346/90961208-3afa2500-e475-11ea-8174-771caca0b879.jpg). Four Square teaching and image credits go to [Science of Being](https://www.scienceofbeing.com/foursquare-teachings).
