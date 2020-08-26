@@ -1,6 +1,9 @@
-This is AllSeeingI, a [Handshake](https://handshake.org) blockchain Top Level Domain.
+# Welcome,  enjoy the beauty of labor and the power of creative thought because with them we will conquer darkness!! This is AllSeeingI, a [Handshake](https://handshake.org) blockchain Top Level Domain.
 
-We promote the guideance of the Inner I Of All and the [Innerinetfoundation](http://official.innerinetfoundation/), or the [AllSeeingI](http://innerinetfounder.allseeingi/).
+Complaining about The Great Work is our being trapped as a slave to the body, hence going against the Spirit.
+We promote the guidance of the Inner I Of All. 
+
+- The [Innerinetfoundation](http://official.innerinetfoundation/), or the [AllSeeingI](http://innerinetfounder.allseeingi/).
 
 credit this sentence to section 67 of source link fouund within; [The establishment of the inner eye and the unfolding of the fires depend upon refinement of the consciousness; only these gates lead to the Kingdom of the Heart.](http://agniyoga.org/ay_en/Heart.php)
 
