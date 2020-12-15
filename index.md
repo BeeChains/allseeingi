@@ -3,7 +3,7 @@
 Complaining about The Great Work is our being trapped as a slave to the body, hence going against the Spirit.
 We promote the guidance of the Inner I Of All. 
 
-- The [Innerinetfoundation](http://official.innerinetfoundation/), or the [AllSeeingI](http://innerinetfounder.allseeingi/).
+- The [Inner I Net Foundation](http://official.innerinetfoundation.hns.to/), or the [AllSeeingI](http://innerinetfounder.allseeingi.hns.to/).
 
 credit this sentence to section 67 of source link fouund within; [The establishment of the inner eye and the unfolding of the fires depend upon refinement of the consciousness; only these gates lead to the Kingdom of the Heart.](http://agniyoga.org/ay_en/Heart.php)
 
