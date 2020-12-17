@@ -1,5 +1,7 @@
 # Welcome,  enjoy the beauty of labor and the power of creative thought because with them we will conquer darkness!! This is AllSeeingI, a [Handshake](https://handshake.org) blockchain Top Level Domain.
 
+[Fighting Monarch](https://fightingmonarch.com/)
+
 Complaining about The Great Work is our being trapped as a slave to the body, hence going against the Spirit.
 We promote the guidance of the Inner I Of All. 
 
