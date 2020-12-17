@@ -3,7 +3,7 @@
 [Fighting Monarch](https://fightingmonarch.com/)
 
 Complaining about The Great Work is our being trapped as a slave to the body, hence going against the Spirit.
-We promote the guidance of the Inner I Of All. 
+We promote the guidance of the Inner I Of All. Almighty God, Christ The Son and The Holy Spirit.
 
 - The [Inner I Net Foundation](http://official.innerinetfoundation.hns.to/), or the [AllSeeingI](http://innerinetfounder.allseeingi.hns.to/).
 
