@@ -1,4 +1,4 @@
-# AllSeeingI, a Handshake blockchain Top Level Domain.
+# All Seeing I/ | a Handshake blockchain Top Level Domain.
  Welcome,  enjoy the beauty of labor and the power of creative thought because with them we will conquer darkness!!
 
 - [Fighting Monarch](https://fightingmonarch.com/)
